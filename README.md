@@ -1,4 +1,4 @@
-(https://media.licdn.com/dms/image/v2/D4E16AQGK_FLRpI_fiw/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1718480370523?e=1750896000&v=beta&t=TAm_MLxAMZ-_idmuVtblqTN6VfNKT_IEY37w9y_K6q8)
+[(https://media.licdn.com/dms/image/v2/D4E16AQGK_FLRpI_fiw/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1718480370523?e=1750896000&v=beta&t=TAm_MLxAMZ-_idmuVtblqTN6VfNKT_IEY37w9y_K6q8)]
 
 ## Hi there 👋, I'm Palash Mitra.
 #### Web Designer | Social Media Manager.

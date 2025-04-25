@@ -7,7 +7,7 @@
 🎨 Palash Mitra: Crafting Digital Masterpieces with Precision and Passion 🎨
 Your Vision, My Canvas: "Let’s Paint the Digital World Together!"
 
-Hello, I’m Palash Mitra, a seasoned ISO Certified Web Designer and Frontend Developer with over 2 years of hands-on experience in creating visually stunning and functionally robust websites. My journey in web design is marked by a relentless pursuit of perfection and a deep understanding of user-centric design principles.
+Hello, I’m Palash Mitra, a seasoned ISO Certified Web Designer and Frontend Developer with years of hands-on experience in creating visually stunning and functionally robust websites. My journey in web design is marked by a relentless pursuit of perfection and a deep understanding of user-centric design principles.
 
 Let’s Make Magic Happen! If you’re ready for a website that wows, drives engagement, and grows your business, let’s connect. With Palash Mitra (palashmitra7252), your digital dreams are just a click away!
 

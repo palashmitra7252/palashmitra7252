@@ -1,4 +1,4 @@
-![](https://scontent.fdac3-1.fna.fbcdn.net/v/t39.30808-6/469839428_122138905958367043_5619198020968888304_n.jpg?_nc_cat=108&ccb=1-7&_nc_sid=cc71e4&_nc_eui2=AeG0MNe2J_e94vtdIgTJ7y7ZXDzZShfaS9tcPNlKF9pL25qgG5bXShbya5fLt7gK0Pb6MPMcPVQi_nralZ8qrrZy&_nc_ohc=ChOdegzHgT4Q7kNvwEv9jL7&_nc_oc=AdnG25lDehpJcOIdYaRkZbWjYrAkLyzc08BpiVpdGfnYLEhSC-0Y1-M8hhDf0kuT_L9OfyuUj7dHHyAq9neD6Meb&_nc_zt=23&_nc_ht=scontent.fdac3-1.fna&_nc_gid=bi-MSh2xMwIwrcdjejzrhA&oh=00_AfE7m-leJGQ5HC0qA_vYoc2dAFkEYrdWyoQSWMUj4tqKDQ&oe=68118CF1)
+![](https://media.licdn.com/dms/image/v2/D4E16AQGK_FLRpI_fiw/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1718480370523?e=1750896000&v=beta&t=TAm_MLxAMZ-_idmuVtblqTN6VfNKT_IEY37w9y_K6q8)
 
 ## Hi there 👋, I'm Palash Mitra.
 #### Web Designer | Social Media Manager.
